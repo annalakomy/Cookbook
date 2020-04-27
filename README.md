@@ -3,3 +3,4 @@
 Składniki:
 - 1 nosorożec
 - 2 tony masła
+- 5000000 ton cukru
